@@ -12,4 +12,4 @@ Berikut daftar Volunter yang diterima:
 * Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
 * Dedi Murphy, [LinkedIn](https://www.linkedin.com/in/dedi-murphy-8119bb238/).
 * murp, [linkedIn]
-* 
+* edu [LinkedIn]
