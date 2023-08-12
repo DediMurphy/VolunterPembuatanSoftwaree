@@ -13,3 +13,4 @@ Berikut daftar Volunter yang diterima:
 * Dedi Murphy, [LinkedIn](https://www.linkedin.com/in/dedi-murphy-8119bb238/).
 * murp, [linkedIn]
 * edu [LinkedIn]
+* Resi [LinkedIn]
